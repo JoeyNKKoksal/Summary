@@ -1,5 +1,3 @@
-Articulate, intuitive and passionate professional with over 15 years of full life cycle recruiting experience. Established reputation for quality, integrity, accountable and results.
-
 Core Competencies;
 
 Lead, coach and inspire a team of recruiters
