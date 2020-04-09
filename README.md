@@ -1,5 +1,3 @@
-Core Competencies;
-
 Lead, coach and inspire a team of recruiters
 Senior Tech Recruiter
 Full-stack Recruiter
