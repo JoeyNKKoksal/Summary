@@ -1,11 +1,1 @@
-Articulate, intuitive, and passionate professional with over 15 years of full life cycle recruiting experience.
-
-Established reputation for quality, integrity, accountability, and results.
-
-Lead, coach, and inspire a team of recruiters.
-Tech Recruitment / Sourcing specialist.
-Data-driven recruitment, Talent Mapping, Market Mapping.
-Continually improve strategies and processes to increase the value of a highly effective recruiting cycle.
-Agile mindset.
-Focused on spotting and harnessing the talents of others.
-Oversee and measure all stages of candidate experience. 
+As an intuitive and passionate recruitment professional with over 17 years of experience in full life cycle recruiting, I have established a reputation for quality, integrity, accountability, and results. With a focus on tech recruitment and sourcing, I possess expertise in data-driven recruitment, talent mapping, and market mapping. I continually improve strategies and processes to increase the value of a highly effective recruiting cycle while having an agile mindset that allows me to quickly adapt to changing situations. I am driven by my ability to spot and harness the talents of others, and I oversee and measure all stages of the candidate experience.![image](https://user-images.githubusercontent.com/19776279/226186170-f8190ba0-13c5-4717-b77a-787119cbbef1.png)
